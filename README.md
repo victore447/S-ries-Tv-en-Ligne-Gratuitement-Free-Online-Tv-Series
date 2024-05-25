@@ -1,8 +1,6 @@
 # SeriesTvGratuitEnLigne-FreeOnlineTvSeries
 👋🇫🇷 Comme nous aimons tous du gratuit télécharger & visualiser en FHD des Séries Tv en Ligne.🇬🇧 As we all love free download & view in FHD Online Tv Series
 
-![0_1YxarEvuK1kZjF5n](https://github.com/victore447/SeriesTvGratuitEnLigne-FreeOnlineTvSeries/assets/48101775/2c2d93f7-e4c6-4b8c-a039-940bfa2b3a00)
-
 ![31](https://github.com/victore447/SeriesTvGratuitEnLigne-FreeOnlineTvSeries/assets/48101775/1abf7938-77dc-45bc-ba70-ae1a3baf1313)
 ### <li>- [x] DESCRIPTION: </li>
 🇫🇷Mise en ligne sur cette page des épisodes de Series Tv téléchargeable et visualisable avec vos navigateurs,applis,Pc etc...
@@ -37,6 +35,9 @@
 >
 >
 >🖲️ **[LINK STREAMING MULTI ONLINE 🇬🇧 & 🇫🇷: Lawmen: Bass Reeves (2023) SAISON 1](https://www.darkivod.net/post/series/1055405-lawmen-bass-reeves?episodeNumber=1)**
+>
+> ![0_1YxarEvuK1kZjF5n](https://github.com/victore447/SeriesTvGratuitEnLigne-FreeOnlineTvSeries/assets/48101775/2c2d93f7-e4c6-4b8c-a039-940bfa2b3a00)
+> 
 >></details>
 
 ### <li>- [x] 👌🇫🇷 Une étoile dessus si c'était intéressant/🇬🇧 Star on top if it was interesting✔️ </li>![smiley-etoile-image-animee-0164](https://github.com/victore447/FilmsSeriesStrmdanskodi/assets/48101775/dc73a5b7-e38e-4d80-9cbc-68ac5dd89826)
