@@ -26,7 +26,7 @@
 > 🇬🇧 The story of Bass Reeves, the legendary lawman of the Wild West, comes to life. He has captured over 3,000 of the most dangerous criminals without ever being harmed. He is considered the inspiration for the Lone Ranger✅
 >
 > 🖲️ **[LINK DOWNLOAD 🇫🇷: Lawmen: Bass Reeves (2023) SAISON 1](https://www.themoviedb.org/tv/157732-lawmen-bass-reeves?language=fr)**
-> - 🖱️ **[Épisode 1 (Saison 1)](https://dl33.darkibox.com/hls2/11/00115/cgqk96afmwys_x/index-v1-a2.m3u8?t=u5W7WToGRAzxOigE0WXVP2WuYf8N3t7W0qN03yNktTQ&s=1716641701&e=43200&f=576255&i=0.0&sp=0&fr=cgqk96afmwys)**
+> - 🖱️ **[Épisode 1 (Saison 1)](https://dl33.darkibox.com/hls2/09/00406/jkihtmbgyos1_x/index-v1-a1.m3u8?t=PgIp6o_L042ZXF-66H_Fvsc4RRuoBD4FhDYqiRYNCL4&s=1716656443&e=43200&f=2034934&i=0.0&sp=0&fr=jkihtmbgyos1)**
 > - 🖱️ **[Épisode 2 (Saison 1)](https://dl33.darkibox.com/hls2/05/00406/sggaw260ehav_x/index-v1-a1.m3u8?t=YXJagQXofOEOjWu2OiZosRQ6ZSj9WBou3aAiqGizEqw&s=1716641772&e=43200&f=2034937&i=0.0&sp=0&fr=sggaw260ehav)**
 > - 🖱️ **[Épisode 3 (Saison 1)](https://dl33.darkibox.com/hls2/10/00406/7958vocs03oh_x/index-v1-a1.m3u8?t=fYjUNX5AS1J-MtKuQvi6ufZgMnvuOW1ajUtweear9O8&s=1716641819&e=43200&f=2034900&i=0.0&sp=0&fr=7958vocs03oh)**
 > - 🖱️ **[Épisode 4 (Saison 1)](https://dl33.darkibox.com/hls2/07/00406/vvwm21zpfwfs_x/index-v1-a1.m3u8?t=ra_0Ai_TGdNNF3zwdU5J3TT8MCOeNikeiGcUbuYJOXo&s=1716641966&e=43200&f=2034915&i=0.0&sp=0&fr=vvwm21zpfwfs)**
