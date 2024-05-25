@@ -10,7 +10,7 @@
 
 ![46](https://github.com/victore447/FilmsSeriesStrmdanskodi/assets/48101775/caa9e727-800b-4827-a780-9684462ccf19)
 ><details>
->  <summary><b><u>🎞️ 🇫🇷 Cliquer sur l'icone/🇬🇧Click on the black icon🤠 "LAWMEN: BASS REEVES (2023)".</u></b></summary>
+>  <summary><b><u>🎞️ 🇫🇷 Cliquer sur l'icone/🇬🇧Click on the black icon 🤠 "LAWMEN: BASS REEVES (2023)".</u></b></summary>
 >
 >![Lawmen](https://github.com/victore447/SeriesTvGratuitEnLigne-FreeOnlineTvSeries/assets/48101775/3f292e6d-71c1-4703-90bd-0e046e2cee2e)
 >  
