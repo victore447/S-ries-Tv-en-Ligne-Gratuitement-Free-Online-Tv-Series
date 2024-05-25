@@ -5,7 +5,7 @@
 
 ![31](https://github.com/victore447/SeriesTvGratuitEnLigne-FreeOnlineTvSeries/assets/48101775/1abf7938-77dc-45bc-ba70-ae1a3baf1313)
 ### <li>- [x] DESCRIPTION: </li>
-🇫🇷Mise en ligne sur cette page des épisodes de Series Tv téléchargeables et visualisable avec vos navigateurs,applis,Pc etc...
+🇫🇷Mise en ligne sur cette page des épisodes de Series Tv téléchargeable et visualisable avec vos navigateurs,applis,Pc etc...
 🇬🇧Uploading episodes of Series Tv to this page, downloadable and viewable with your browsers,App,Pc etc..
 
 ![46](https://github.com/victore447/FilmsSeriesStrmdanskodi/assets/48101775/caa9e727-800b-4827-a780-9684462ccf19)
