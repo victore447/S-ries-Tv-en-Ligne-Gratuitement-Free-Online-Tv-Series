@@ -14,9 +14,9 @@
 >
 >![Lawmen](https://github.com/victore447/SeriesTvGratuitEnLigne-FreeOnlineTvSeries/assets/48101775/3f292e6d-71c1-4703-90bd-0e046e2cee2e)
 >  
-> 👆🇫🇷 Brillant Western en 8 Épisodes dans la lignée du 🎥 Film "Les sept mercenaires (2016)".
+> 👆🇫🇷 Brillant Western en 8 Épisodes dans la lignée du 🎥 "Les sept mercenaires (2016)".
 >
-> 👆🇬🇧 Brilliant Western in 8 Episodes in the tradition of 🎥 Movie "The Seven Mercenaries (2016)
+> 👆🇬🇧 Brilliant Western in 8 Episodes in the tradition of 🎥"The Seven Mercenaries (2016)
 >  
 > 🎬 CASTING :
 > [David Oyelowo](https://www.themoviedb.org/person/35013-david-oyelowo?language=fr),[Donald Sutherland](https://www.themoviedb.org/person/55636-donald-sutherland?language=fr),[Dennis Quaid](https://www.themoviedb.org/person/6065-dennis-quaid?language=fr),[Barry Pepper](https://www.themoviedb.org/person/12834-barry-pepper?language=fr),[Forrest Goodluck](https://www.themoviedb.org/person/1560185-forrest-goodluck?language=fr) etc..
